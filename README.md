@@ -14,3 +14,5 @@ Answer the questions below
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
 Has MR.vu ever played league of legends? If so, What was his peak rank?! 
+
+HELLO MR VU ITS ME 
